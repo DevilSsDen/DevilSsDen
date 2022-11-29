@@ -1,4 +1,4 @@
-### Hi there 👋 Parth Here!!!
+### Hi 👋 Parth Here!!!
 
 <!--
 
